@@ -6,4 +6,3 @@
 
 > - twitter：@gigiovo
 > - 微博：gigi13164269
-> - facebook： 李冀
